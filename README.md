@@ -1,4 +1,3 @@
-jolly skin page 
 # [aeri](https://secret.s-ul.eu/OY6lqRuW)
 ![](https://secret.s-ul.eu/oheUMJY2)
 # [aosora](https://secret.s-ul.eu/fMylRzB6)
