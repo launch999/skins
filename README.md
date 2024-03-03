@@ -1,7 +1,5 @@
 # [soft](https://secret.s-ul.eu/ivWWdGbh)
 ![](https://secret.s-ul.eu/N0Zhluwq)
-# [aristia (edit)](https://secret.s-ul.eu/wjW8y15d)
-![](https://secret.s-ul.eu/LwgksvFK)
 # [bliss](https://secret.s-ul.eu/zLwZRoea)
 ![](https://secret.s-ul.eu/6mLlXV5r)
 # [- Lua (Toke Hamster) + DT edit](https://secret.s-ul.eu/nh5Ajn7Y)
